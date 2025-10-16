@@ -1,16 +1,20 @@
-## Hi there 👋
+<div align="center">
+  
+  <img src=https://i.postimg.cc/L8G7NyrP/Untitled179-20251016001359.png>
+<img src=https://i.postimg.cc/3xhYnxm5/image.png>
+    <img src=https://i.postimg.cc/L8G7NyrP/Untitled179-20251016001359.png>
+  
+  GREETINGS. I AM THE CISGENDER WHITE STRAIGHT WOMAN. 
+  
+  67 YEARS OLD. CIS WOMAN. STRAIGHT. HETEROSEXUAL. GIRL/WOMAN. 
+  
+  PRONOUNS: CISGENDER STRAIGHT WHITE WOMAN
 
-<!--
-**CISGENDERLADYTRUE/CISGENDERLADYTRUE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+   <img src=https://i.postimg.cc/L8G7NyrP/Untitled179-20251016001359.png>
 
-Here are some ideas to get you started:
+   LIKES: ANYTHING THAT ISNT A TRAIN
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+   BYI: I HATE TRAINS. I AM A WOMAN. I AM WHITE. I AM CISGENDER. I AM STRAIGHT. I AM ALWAYS CORRECT. I ONLY BEND RULES FOR MY UNDERLING.
+
+   DNI: WALKINGTW, CANNIBALISTIC-WAYS-OF-LIFE, GOTHICCOWBOY. MORE SOON. THEY ARE ALL TRAINS.
+</div>
